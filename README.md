@@ -10,7 +10,7 @@
  
   
 <a href="https://whatsapp.com/channel/0029VadQrNI8KMqo79BiHr3l">
- <img alt="𝐏𝐎𝐏𝐊𝐈𝐃 𝐗𝐓𝐄𝐂𝐇" height="270" <img src="https://files.catbox.moe/se5e6e.jpg" width="100%" height="auto">
+ <img alt="𝐏𝐎𝐏𝐊𝐈𝐃 𝐗𝐓𝐄𝐂𝐇"  <img src="https://files.catbox.moe/se5e6e.jpg" width="100%" height="auto">
   </a>
  
 
